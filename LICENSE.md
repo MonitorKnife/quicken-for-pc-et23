@@ -1,4 +1,4 @@
-# 
+# Quicken for PC | Quicken for Windows automatic Addon: receipt-capture & recurring-billing offers the most advanced Quicken for PC | Quicken for Windows addon, with receipt-capture
 
 
 
